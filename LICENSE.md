@@ -1,4 +1,4 @@
-
+premium king legacy Scripts offers the most advanced king legacy Script, with anti-ban and auto-farm. Perfect for dominating any match.
 
 
 
